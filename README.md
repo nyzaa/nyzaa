@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nyzaa
+- 👀 I’m interested in Java programming
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: ...
